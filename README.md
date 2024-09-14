@@ -1,0 +1,5 @@
+- 👋 Opa, é a Grazi
+- 👀 Curto músicas e pjsk (project sekai)
+- 🌱 Estou estudando libras
+- 😄 Pronomes: Ela/dela ou Ele/dele
+- ⚡ Fun fact: Meu cabelo é azul!
